@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @mtinston
+- 👋 Hi, I’m Mike Tinston
 - 👀 I’m interested in pretty much everything.
 - 🌱 I’m currently learning not nearly enough.
 
